@@ -1,1 +1,0 @@
-# Spaetzle-mit-scholz
